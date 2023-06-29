@@ -2,4 +2,4 @@
 - bem vindo ao meu perfil 
 - eu gosto de fisica
   
-- eu amo volêi
+- eu amo volêi.
