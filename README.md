@@ -1,4 +1,5 @@
 ### oiiii,é a lorena
-
--bão
-Eu gosto de rosa
+- bem vindo ao meu perfil 
+- eu gosto de fisica
+  
+- eu amo volêi
